@@ -1,3 +1,3 @@
 # Efficacy
 
-Centralizing the internet. We want to improve productivity ⚡️
+Centralizing the internet. We want to improve productivity ⚡️ 
